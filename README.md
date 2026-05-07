@@ -120,3 +120,12 @@ Neste laboratório, a base tem apenas 20 documentos, então o ganho de velocidad
 Partes deste laboratório foram geradas/complementadas com IA, revisadas e validadas por Carlos Eugênio
 
 
+
+
+
+
+
+
+
+
+
